@@ -1,9 +1,10 @@
-# ✧･ﾟ: *✧･ﾟ:* 𝓌𝑒𝓁𝒸𝑜𝓂𝑒 *:･ﾟ✧*:･ﾟ✧
+![Miles Morales Prowler GIF - Miles morales Prowler Earth 42 - Descubre y comparte GIF](https://github.com/user-attachments/assets/a394ce4c-afb0-4699-bf3e-55eeb9a87188)
 
 
+<img width="736" height="246" alt="Spiderman__across_the_spiderverse_header-removebg-preview" src="https://github.com/user-attachments/assets/af4b6b57-c19c-4065-8900-3938e72306dd" />
 
-![banner](![Spiderman_ across the spiderverse header (1)](https://github.com/user-attachments/assets/4182eced-fd74-40eb-847f-e97cb95c88b2)
-) 
+
+ 
 
 
 
@@ -29,16 +30,17 @@
 
 ### 𝘿𝙉𝙄𝙎
 
->  ![banner](![_ (1)](https://github.com/user-attachments/assets/67f9f046-62e4-49cb-bd8b-29c50b94fd41)
-) 
+>  ![_ (1)](https://github.com/user-attachments/assets/d555668c-43e4-4fbd-b12d-970e56a70bab)
+
+ 
 > Proshippers/darkshippers, rape jokes, transphobic, homophobes, necrophiles, toxic people, Flowerpunk ( i hate that ship, Miles-1610 is like 15 and Hobie is like 19 ), Prowlerflower( THEY ARE THE SAME PERSON, JUST WHY??? ) 
 
 ---
 
-### 𓆩⸙𓆪⸙𓆩⸙𓆪⸙𓆩⸙𓆪⸙𓆩
+### 𓆩
 
-![divider](![Across the spider verse jordan easter egg](https://github.com/user-attachments/assets/64ce80a2-1503-425c-be56-eeea388591c7)
-) 
+![Across the spider verse jordan easter egg](https://github.com/user-attachments/assets/cefb1b0a-abf4-4471-b52e-f6bdb7b169de)
+
 
 
 ## 📌 𝙉𝙊𝙏𝙀 !
