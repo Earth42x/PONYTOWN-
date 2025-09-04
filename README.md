@@ -14,7 +14,7 @@
 >  ![_ (1)](https://github.com/user-attachments/assets/d555668c-43e4-4fbd-b12d-970e56a70bab)
 
  
-> Proshippers/darkshippers, rape jokes, transphobic, homophobes, necrophiles, toxic people, Flowerpunk ( i hate that ship, Miles-1610 is like 15 and Hobie is like 19 ), Prowlerflower( THEY ARE THE SAME PERSON, JUST WHY??? ) 
+> Proshippers/darkshippers, r@p3 jokes, transphobic, homophobes, necrophiles, toxic people
 
 ---
 
